@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RempooX
+- 👀 I’m interested in Everything that related to coding. <3
+- 🌱 I’m currently learning C# and C++
+- 📫 How to reach me " https://solo.to/rempo_x "
